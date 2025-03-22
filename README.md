@@ -32,5 +32,5 @@ Gautam
 Dalal
 gourav 
 kewat(Monster👹)
-Min HUllk 
+Mini Hulk 
 eyes 👀
